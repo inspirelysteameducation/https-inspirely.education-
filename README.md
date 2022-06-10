@@ -1,0 +1,2 @@
+# https-inspirely.education-
+"With live educators, INSPIRELY offers after-school enrichment programs for children ages 6 to 14 years. Our goal is to empower the next generation innovators and change makers through STEAM education &amp; beyond. STEAM stands for Science, Technology, Engineering, Arts or Aerospace &amp; Math.   We serve the need for quality education which supplements your child's school education. To learn more about Inspirely, please visit: https://inspirely.education/"
